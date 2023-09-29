@@ -16,3 +16,6 @@ s'exclama le mari.
 
 Devant se désaccord, le couple décida de passer son chemin, ils se rendirent bien vite compte que c'était une mauvaise idée ... 
 
+car enfaite c'etait une enquete pour inspecteur gadget l'homme le plus respecté des horizons qui ramenait la paix a **hurle-vent**
+>Je m'en occupe
+s'exclama le detective
