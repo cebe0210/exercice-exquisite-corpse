@@ -19,3 +19,7 @@ Devant se désaccord, le couple décida de passer son chemin, ils se rendirent b
 car enfaite c'etait une enquete pour inspecteur gadget l'homme le plus respecté des horizons qui ramenait la paix a **hurle-vent**
 >Je m'en occupe
 s'exclama le detective
+
+Bien que l'**inspecteur Gadget** essayait autant qu'il pouvait de s'adapter à son nouvel environnement, il était surpris. 
+il ne savait pas comment *il avait fait* mais une dame étrange lui pointait juste là son épée sous le nez 
+![sylvanas](https://www.pcgamesn.com/wp-content/sites/pcgamesn/2023/07/wow-dragonflight-10-1-7-sylvanas-spell.jpg)
