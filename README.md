@@ -28,6 +28,10 @@ L'inspecteur Gadget, bien que désorienté par cette soudaine rencontre avec Syl
 
 Sylvanas Coursevent, intrigante et mystérieuse, fixa Gadget de ses yeux perçants et dit d'une voix glaciale : "Qui es-tu, étranger, et que fais-tu dans cette forêt ?"
 
+La voix de **Sylvanas Coursevent** était tellement envoutante que l'inspecteur Gadget ne puit se retenir de tomber amoureux d'elle. Il avait des coeurs à la place des yeux comme dans un [cartoon](https://usagif.com/wp-content/uploads/gif/heart-eyes-26.gif). Il en oublia l'enquête et partit avec elle vers de nouveaux horizon avec sa technique de gadget copter.
+
+![gadget copter](https://static.wikia.nocookie.net/inspectorgadget/images/f/f6/4532657169913856.jpg/revision/latest/scale-to-width-down/350?cb=20180108145709)
+
 ## list de branche
 
 +principal
