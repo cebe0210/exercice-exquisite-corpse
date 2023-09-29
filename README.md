@@ -24,6 +24,10 @@ Bien que l'**inspecteur Gadget** essayait autant qu'il pouvait de s'adapter à s
 il ne savait pas comment *il avait fait* mais une dame étrange lui pointait juste là son épée sous le nez 
 ![sylvanas](https://www.pcgamesn.com/wp-content/sites/pcgamesn/2023/07/wow-dragonflight-10-1-7-sylvanas-spell.jpg)
 
+L'inspecteur Gadget, bien que désorienté par cette soudaine rencontre avec Sylvanas Coursevent et son épée menaçante, garda son calme légendaire. Après tout, il était l'homme le plus respecté des horizons et avait résolu d'innombrables énigmes auparavant.
+
+Sylvanas Coursevent, intrigante et mystérieuse, fixa Gadget de ses yeux perçants et dit d'une voix glaciale : "Qui es-tu, étranger, et que fais-tu dans cette forêt ?"
+
 ## list de branche
 
 +principal
